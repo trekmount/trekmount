@@ -178,3 +178,4 @@ Final Thoughts
 The Kedarkantha Trek height is approximately 3,810 metres (12,500 feet), making the summit the highest point of this popular Himalayan adventure. The route combines gradual altitude gain, beautiful forests, open meadows, mountain views, and, during the winter season, snow-covered landscapes.
 
 Knowing the Kedarkantha Peak height, preparing for the elevation gain, carrying appropriate gear, and following safe trekking practices can help you enjoy the journey more comfortably. If you are planning your trek, TrekMount can help you organize your Kedarkantha trekking experience with suitable packages and trip support.
+Do Visit: https://trekmount.com/kedarkantha-trek/
